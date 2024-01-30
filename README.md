@@ -1,1 +1,1 @@
-There is geometry in the humming of the strings, there is music in the spacing of the spheres.
+From the boundless emerged the elements; from chaos, order. Logic, the silent architect, shapes the cosmos

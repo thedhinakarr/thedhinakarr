@@ -2,4 +2,4 @@
 
 Logic, the silent architect, shapes the cosmos"
 
--Anaximander
+  -Anaximander

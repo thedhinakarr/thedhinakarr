@@ -1,1 +1,1 @@
-🌑 Wandering the code realms, a shadow coder crafting spells in the language of bits and bytes. 🧙‍♂️
+🌑 "Apply them constantly, to everything that happens: Physics. Ethics. Logic." - Marcus Aurelius
